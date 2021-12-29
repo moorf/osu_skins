@@ -18,3 +18,17 @@ https://drive.google.com/drive/folders/1Oa8Lk4WcdeqKBM6gSPApDtIcBQYG-CgG?usp=sha
 # [fffffswdsqv3](https://drive.google.com/drive/folders/1Oa8Lk4WcdeqKBM6gSPApDtIcBQYG-CgG?usp=sharing)
 [![fffffswdsqv3.png](https://i.postimg.cc/bYbwsP1t/fffffswdsqv3.png)](https://postimg.cc/yW1HbwQ1)
 
+# [Haizae](https://drive.google.com/drive/folders/1Oa8Lk4WcdeqKBM6gSPApDtIcBQYG-CgG?usp=sharing)
+[![haizae.png](https://i.postimg.cc/sDrDWLJ0/haizae.png)](https://postimg.cc/dD5YP4p8)
+
+# [Haizea](https://drive.google.com/drive/folders/1Oa8Lk4WcdeqKBM6gSPApDtIcBQYG-CgG?usp=sharing)
+[![haizea.png](https://i.postimg.cc/7ZPHsTd3/haizea.png)](https://postimg.cc/yk5CWWVx)
+
+# [Haizea 2019](https://drive.google.com/drive/folders/1Oa8Lk4WcdeqKBM6gSPApDtIcBQYG-CgG?usp=sharing)
+[![haizea-2019.png](https://i.postimg.cc/wvRT58Pn/haizea-2019.png)](https://postimg.cc/62wXwSBh)
+
+# [Haizea 2020](https://drive.google.com/drive/folders/1Oa8Lk4WcdeqKBM6gSPApDtIcBQYG-CgG?usp=sharing)
+[![haizea-2020.png](https://i.postimg.cc/zvnzMwqj/haizea-2020.png)](https://postimg.cc/9wQHw7RR)
+
+# [Haizea 2021 (Two color variations in skin.ini)](https://drive.google.com/drive/folders/1Oa8Lk4WcdeqKBM6gSPApDtIcBQYG-CgG?usp=sharing)
+[![haizea-2021.png](https://i.postimg.cc/QxJNJq4N/haizea-2021.png)](https://postimg.cc/xcqS0LVB)
